@@ -1,6 +1,7 @@
 # Kaynaklar
 Hey!👋👋 
-As a B.Tech student 🧑‍🎓👩‍🎓all we need is best resources for our further or sem wise studies. 
+Hope you are doing great 🙈
+I know as a B.Tech student 🧑‍🎓👩‍🎓all we need is best resources for our further or sem wise studies. 
 To find best resources for sem wise  subjects at one platform is too difficult😣
 But don't worry i got you 😊 
 
